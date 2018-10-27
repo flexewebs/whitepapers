@@ -93,3 +93,11 @@ Superhuman manifesto states the traits of modern day super humans.
 ## Superhumans see the reality for what it is 
 
 ## Superhumans are enlightened 
+
+## Superhumans are self-actualised 
+
+## Superhumans have completely clear minds 
+
+## Superhumans are their own best friend 
+
+## Superhumans don't need anything and want everything 
