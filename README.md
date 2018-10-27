@@ -101,3 +101,7 @@ Superhuman manifesto states the traits of modern day super humans.
 ## Superhumans are their own best friend 
 
 ## Superhumans don't need anything and want everything 
+
+## Superhumans are authentic 
+
+## Superhumans are wise 
