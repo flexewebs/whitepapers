@@ -1,8 +1,13 @@
 # Superhuman Manifesto
 
-Superhuman manifesto states the traits of modern day super humans.
+Superhuman manifesto defines the traits of modern day superhumans.
 
 ## Superhumans are beyond super heroes
+
+Super heroes inspired humanity back in 80s and 90s. They are no longer enough to 
+keep us going. Superhumans are real world humans with extraordinary abilities that 
+are useful for us all. Superhumans bring us real world soulutions needed for 
+humanity to make the essential leaps forward.
 
 ## Superhumans are creators 
 
@@ -48,7 +53,7 @@ Superhuman manifesto states the traits of modern day super humans.
 
 ## Superhumans learn all the time 
 
-## Superhumans leave legacy 
+## Superhumans work on leaving a legacy 
 
 ## Superhumans build effortlessly 
 
@@ -60,7 +65,7 @@ Superhuman manifesto states the traits of modern day super humans.
 
 ## Superhumans are systematic in their approach 
 
-## Superhumans act fast with a plan 
+## Superhumans have a plan and act fast
 
 ## Superhumans show up no matter what 
 
@@ -70,9 +75,9 @@ Superhuman manifesto states the traits of modern day super humans.
 
 ## Superhumans see the way forward 
 
-## Superhumans know the future is great
+## Superhumans know the future gets better
 
-## Superhumans handle superabundance perfectly 
+## Superhumans can handle superabundance 
 
 ## Superhumans can always be, do and have more 
 
@@ -105,3 +110,9 @@ Superhuman manifesto states the traits of modern day super humans.
 ## Superhumans are authentic 
 
 ## Superhumans are wise 
+
+## Superhumans realise they are perfect on the level of Being 
+
+## Superhumans are artists of their own life 
+
+## Superhumans always work on themselves 
