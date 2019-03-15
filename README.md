@@ -17,35 +17,35 @@ humanity to make the essential leaps forward.
 
 ## Superhumans speak truth
 
-## Superhumans are multi perspectival
+## Superhumans are multi-perspectival
 
 ## Superhumans care deeply 
 
-## Superhumans promote aspirations
+## Superhumans propagate aspirations
 
-## Superhumans are networkers 
+## Superhumans network with many people  
 
 ## Superhumans evolve humanity 
 
 ## Superhumans ~~dream~~ design 
 
-## Superhumans are well balanced 
+## Superhumans are balanced 
 
-## Superhumans feel perfect 
+## Superhumans feel blissful 
 
 ## Superhumans are well inner engineered 
 
 ## Superhumans thrive in all circumstances 
 
-## Superhumans are mentally super powerful 
+## Superhumans have powerful minds
 
-## Superhumans bring others along 
+## Superhumans bring other people along 
 
 ## Superhumans are explorers and innovators 
 
-## Superhumans never work 
+## Superhumans never work and always do what they love 
 
-## Superhumans have divine purpose 
+## Superhumans have a divine purpose 
 
 ## Superhumans are prophetic 
 
@@ -53,31 +53,31 @@ humanity to make the essential leaps forward.
 
 ## Superhumans learn all the time 
 
-## Superhumans work on leaving a legacy 
+## Superhumans work to realise a legacy 
 
 ## Superhumans build effortlessly 
 
-## Superhumans overcome and manage complexity 
+## Superhumans manage complexity 
 
 ## Superhumans prefer doing over talking 
 
-## Superhumans are strategic with everything 
+## Superhumans are strategic
 
-## Superhumans are systematic in their approach 
+## Superhumans are systematic
 
 ## Superhumans have a plan and act fast
 
-## Superhumans show up no matter what 
+## Superhumans show up
 
 ## Superhumans say yes to everything 
 
 ## Superhumans are deal makers 
 
-## Superhumans see the way forward 
+## Superhumans always see a way forward 
 
-## Superhumans know the future gets better
+## Superhumans know the future only gets better
 
-## Superhumans can handle superabundance 
+## Superhumans handle superabundance easily
 
 ## Superhumans can always be, do and have more 
 
@@ -85,27 +85,27 @@ humanity to make the essential leaps forward.
 
 ## Superhumans are patient 
 
-## Superhumans lead in every way 
+## Superhumans lead 
 
 ## Superhumans inspire others 
 
-## Superhumans are all inclusive 
+## Superhumans are inclusive 
 
-## Superhumans understand everyone's point of view 
+## Superhumans understand multiple points of view 
 
-## Superhumans comprehend other people's minds fully 
+## Superhumans comprehend other people's minds well
 
-## Superhumans see the reality for what it is 
+## Superhumans see reality for what it is 
 
 ## Superhumans are enlightened 
 
 ## Superhumans are self-actualised 
 
-## Superhumans have completely clear minds 
+## Superhumans have clear minds 
 
-## Superhumans are their own best friend 
+## Superhumans are their own best friend first
 
-## Superhumans don't need anything and want everything 
+## Superhumans don't need anything yet want everything 
 
 ## Superhumans are authentic 
 
@@ -115,4 +115,4 @@ humanity to make the essential leaps forward.
 
 ## Superhumans are artists of their own life 
 
-## Superhumans always work on themselves 
+## Superhumans always work on themselves  
