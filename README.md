@@ -5,25 +5,26 @@ Superhuman manifesto defines the traits of modern day superhumans.
 ## Superhumans are beyond super heroes
 
 Super heroes inspired humanity back in 80s and 90s. They are no longer enough to 
-keep us going. Superhumans are real world humans with extraordinary abilities that 
-are useful for us all. Superhumans bring us real world soulutions needed for 
-humanity to make the essential leaps forward.
+keep us going. Superhumans are real world humans with extraordinary abilities 
+that are useful for us all. Superhumans bring us real world soulutions needed 
+for humanity to make the essential leaps forward.
 
-## Superhumans are creators 
+## Superhumans live with integrity 
 
-## Superhumans are integral and congruent 
+## Superhumans are superabundant
 
-## Superhumans are polymathic 
+## Superhumans create
+Powerful creators 
 
-## Superhumans speak truth
+## Superhumans are polymaths
 
-## Superhumans are multi-perspectival
+## Superhumans speak truth 
 
-## Superhumans care deeply 
+## Superhumans care 
 
 ## Superhumans propagate aspirations
 
-## Superhumans network with many people  
+## Superhumans network
 
 ## Superhumans evolve humanity 
 
@@ -69,15 +70,13 @@ humanity to make the essential leaps forward.
 
 ## Superhumans show up
 
-## Superhumans say yes to everything 
+## Superhumans consider all possibilities  
 
 ## Superhumans are deal makers 
 
 ## Superhumans always see a way forward 
 
 ## Superhumans know the future only gets better
-
-## Superhumans handle superabundance easily
 
 ## Superhumans can always be, do and have more 
 
@@ -91,7 +90,9 @@ humanity to make the essential leaps forward.
 
 ## Superhumans are inclusive 
 
-## Superhumans understand multiple points of view 
+## Superhumans understand
+Understand multiple perspectives, comprehend multiple points of view. 
+Hold multiple points of view at the same time
 
 ## Superhumans comprehend other people's minds well
 
@@ -116,3 +117,7 @@ humanity to make the essential leaps forward.
 ## Superhumans are artists of their own life 
 
 ## Superhumans always work on themselves  
+
+## Superhumans live their values 
+
+## Superhumans have great mental architecture
