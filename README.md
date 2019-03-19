@@ -121,3 +121,5 @@ Hold multiple points of view at the same time
 ## Superhumans live their values 
 
 ## Superhumans have great mental architecture
+
+## Superhumans play
