@@ -9,7 +9,7 @@ keep us going. Superhumans are real world humans with extraordinary abilities
 that are useful for us all. Superhumans bring us real world soulutions needed 
 for humanity to make the essential leaps forward.
 
-## Superhumans live with integrity 
+## Superhumans have integrity 
 
 ## Superhumans are superabundant
 
@@ -34,21 +34,39 @@ Powerful creators
 
 ## Superhumans feel blissful 
 
-## Superhumans are well inner engineered 
+## Superhumans are complete
 
-## Superhumans thrive in all circumstances 
+Within their inner self, superhumans feel complete. They don't need anything per say. 
+They are able to survive the worst of times with next to nothing. They are continuosly progressive 
+in their approach to life still. They know their potential is omnipotent. They use
+all their time to make the highest possible impact. 
 
-## Superhumans have powerful minds
+## Superhumans thrive 
 
-## Superhumans bring other people along 
+No matter what the circumstances, superhumans are able to thrive and create. They 
+understand that their state determines circumstances. They don't let circumstances determine 
+their state. This is how superhumans are able to make a positive difference no matter
+what is happening.
 
-## Superhumans are explorers and innovators 
+## Superhumans have fresh minds
 
-## Superhumans never work and always do what they love 
+## Superhumans bring others along 
 
-## Superhumans have a divine purpose 
+## Superhumans are explorers
+
+## Superhumans innovate
+
+## Superhumans do what they love 
+
+## Superhumans create with a divine purpose 
 
 ## Superhumans are prophetic 
+
+Superhumans know that words create worlds, so they are care-full about what they 
+speak into reality. Sooner or later what superhumans talk about becomes reality. 
+Natural outcome of superhuman approach to life is that their verbal predictions 
+become prophetic in nature. This is also because superhumans put their own words 
+into practice.
 
 ## Superhumans don't believe in anything 
 
