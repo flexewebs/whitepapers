@@ -2,13 +2,6 @@
 
 Superhuman manifesto defines the traits of modern day superhumans.
 
-## Superhumans are beyond super heroes
-
-Super heroes inspired humanity back in 80s and 90s. They are no longer enough to 
-keep us going. Superhumans are real world humans with extraordinary abilities 
-that are useful for us all. Superhumans bring us real world soulutions needed 
-for humanity to make the essential leaps forward.
-
 ## Superhumans have integrity 
 
 ## Superhumans are superabundant
@@ -28,7 +21,7 @@ Powerful creators
 
 ## Superhumans evolve humanity 
 
-## Superhumans ~~dream~~ design 
+## Superhumans design 
 
 ## Superhumans are balanced 
 
@@ -143,3 +136,10 @@ Hold multiple points of view at the same time
 ## Superhumans play
 
 ## Superhumans perfect 
+
+## Superhumans are beyond super heroes
+
+Super heroes inspired humanity back in 80s and 90s. They are no longer enough to 
+keep us going. Superhumans are real world humans with extraordinary abilities 
+that are useful for us all. Superhumans bring us real world soulutions needed 
+for humanity to make the essential leaps forward.
