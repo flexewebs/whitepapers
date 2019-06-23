@@ -10,19 +10,30 @@ At any stage in their lives, superhumans know they live in superabundace. They a
 ## Superhumans are polymaths
 Interest in many subjects is the norm for superhumans. They synthesise across varied realms. They aim to realise broader truth. 
 
-## Superhumans are balanced 
-Inner balance is the most natural state of being. This is a realised way for superhumans to be. 
+## Superhumans are neutral
+Inner balance is the most natural state of being. Superhumans realise this and keep their inner balance at all times. From this state they can do and have balanced outcomes in life. Outcomes which have long term relevance. 
 
-## Superhumans feel blissful 
+## Superhumans are blissful 
+Blissfulness is a byproduct of enlightenment. Realising the perfection of creation produces blissfulness in all situations. Superhumans are blissful because of the awareness level they are at. 
+
 ## Superhumans are complete
 Superhumans feel complete inside. They don't need anything. They are able to survive no matter what. They still upgrade their approach to life. They know their potential. They use time to realise that potential. 
+
 ## Superhumans are prophetic 
-Superhumans know that words create worlds. They are care-full about what they speak into reality. Sooner or later what superhumans talk about becomes reality.  Natural outcome of superhuman approach to life is that their verbal predictions 
-become prophetic in nature. This is also because superhumans put their own words into practice.
+Superhumans know that words create worlds. They are care-full about what they speak into reality. What superhumans talk about, becomes reality.  Superhuman approach to life means that their verbal predictions become prophetic. This is because superhumans put their own words into practice.
+
 ## Superhumans know
+Superhumans gain knowledge all the time. Knowledge is power. Continuous gaining of knowledge is a continuous gaining of power. Superhumans first know themselves. They then integrate all kinds of other knowledge throughout their lives. They also share their knowledge with the rest of humanity. 
+
 ## Superhumans prioritise doing over talking 
+Words create worlds. It requires doing for verbal intentions to reflect themselves in reality. This is why superhumans prioritise doing over talking. Reflections in reality are more valuable than conceptions in language. 
+
 ## Superhumans are strategic
+Long term approach is the key to being superhuman. Ten, twenty, thirty or hundred year visions and plans are normal. You can only connect the dots backwards. Start with the end vision. Then connect the dots backwards to present moment. Then act on the outlined strategy. 
+
 ## Superhumans are systematic
+
+
 ## Superhumans are visionaries 
 ## Superhumans are optimistic 
 ## Superhumans are progressive 
@@ -61,7 +72,7 @@ their state. This is how superhumans are able to make a positive difference no m
 ## Superhumans manage complexity 
 ## Superhumans act fast
 ## Superhumans show up
-## Superhumans consider all possibilities  
+## Superhumans consider many possibilities  
 ## Superhumans lead 
 Superhumans bring others along. 
 ## Superhumans inspire
