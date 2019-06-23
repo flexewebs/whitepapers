@@ -5,8 +5,14 @@ Superhuman manifesto defines superhumans characteristics. Manifesto's aim is to 
 # Be
 
 ## Superhumans are superabundant
+At any stage in their lives, superhumans know they live in superabundace. They are aware of direct access to resources. Their superabundance starts in the mind.
+
 ## Superhumans are polymaths
+Interest in many subjects is the norm for superhumans. They synthesise across varied realms. They aim to realise broader truth. 
+
 ## Superhumans are balanced 
+Inner balance is the most natural state of being. This is a realised way for superhumans to be. 
+
 ## Superhumans feel blissful 
 ## Superhumans are complete
 Superhumans feel complete inside. They don't need anything. They are able to survive no matter what. They still upgrade their approach to life. They know their potential. They use time to realise that potential. 
@@ -59,13 +65,25 @@ their state. This is how superhumans are able to make a positive difference no m
 ## Superhumans lead 
 Superhumans bring others along. 
 ## Superhumans inspire
+
 ## Superhumans understand
-Understand multiple perspectives, comprehend multiple points of view. Hold multiple points of view at the same time
+Superhumans understand many perspectives. They contemplate many points of view. They can hold opposing points of view at the same time. They synthesise perspectives to see more. They are able to infer and deduce. They can work knowledge out, not only read it from elsewhere. 
+
 ## Superhumans self develop
+Continuous self develop is the norm for superhumans. It's not an addiction, but a practical way of existing. Self innovation is the starting point for any other type of innovation which is a derivative of self. 
+
 ## Superhumans live their values 
+Knowledge is power. Knowledge of self is a superpower. Personal values are a guide. They reflect in everything superhumans do. Living one's values is the way to always bring value to the world. Life is valuable. One's own values add value to life and humanity. 
+
 ## Superhumans play
+Superhumans have healthy inner child within them. They play all the time. It's the most optimal way to complete any game. Including the games of life and legacy building. Superhumans play even with the most serious of circumstances. 
+
 ## Superhumans perfect 
+Continuous process of perfecting creates better circumstances. It is not perfectionism. It is perfecting. There is always a better way to do anything. Superhumans perfect better ways all the time. It is continuous innovation at the heart of approach to life. 
+
 ## Superhumans see reality for what it is 
+Direct experiencing is the highest form of knowing reality. Seeing reality without any mental filters is truth. Superhumans see reality for what it is. Not for what they think it is. This purity of observation enables superhumans to be right more often. 
+
 ## Superhumans realise they are perfect on the level of Being 
 ## Superhumans make deals 
 
@@ -73,7 +91,11 @@ Understand multiple perspectives, comprehend multiple points of view. Hold multi
 # Have
 
 ## Superhumans have integrity 
+Everything superhumans are, do and have is harmonious. Psychological congruence is the way they are. Integrity is a need, not an achievement. Creation of legacy requires integrity.
+
 ## Superhumans have fresh minds
+Purity and focus of mind are 
+
 ## Superhumans have a plan
 ## Superhumans have great mental architecture
 
