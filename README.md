@@ -1,146 +1,81 @@
 # Superhuman Manifesto
 
-Superhuman manifesto defines superhumans characteristics. Manifesto's aim is to inspire. 
-It's a guidance towards an upgraded way to be, do and have.
+Superhuman manifesto defines superhumans characteristics. Manifesto's aim is to inspire. It's a guide for an upgraded way to be, do and have.
 
-## Superhumans have integrity 
+# Be
 
 ## Superhumans are superabundant
+## Superhumans are polymaths
+## Superhumans are balanced 
+## Superhumans feel blissful 
+## Superhumans are complete
+Superhumans feel complete inside. They don't need anything. They are able to survive no matter what. They still upgrade their approach to life. They know their potential. They use time to realise that potential. 
+## Superhumans are prophetic 
+Superhumans know that words create worlds. They are care-full about what they speak into reality. Sooner or later what superhumans talk about becomes reality.  Natural outcome of superhuman approach to life is that their verbal predictions 
+become prophetic in nature. This is also because superhumans put their own words into practice.
+## Superhumans know
+## Superhumans prioritise doing over talking 
+## Superhumans are strategic
+## Superhumans are systematic
+## Superhumans are visionaries 
+## Superhumans are optimistic 
+## Superhumans are progressive 
+## Superhumans are resourceful 
+## Superhumans are patient 
+## Superhumans are inclusive 
+## Superhumans are enlightened 
+## Superhumans are self-actualised 
+## Superhumans are clear 
+## Superhumans are authentic 
+## Superhumans are wise 
+## Superhumans are artists of their own life 
+## Superhumans want everything 
+## Superhumans are beyond super heroes
+Super heroes inspired humanity back in 80s and 90s. They are no longer enough to keep us going. Superhumans are real world humans with extraordinary abilities that are useful for us all. Superhumans bring us real world soulutions(1) needed for humanity to make the essential leaps forward.
 
+
+# Do
+
+## Superhumans explore
 ## Superhumans create
 Powerful creators 
-
-## Superhumans are polymaths
-
 ## Superhumans speak truth 
-
 ## Superhumans care 
-
 ## Superhumans propagate aspirations
-
-## Superhumans network
-
+## Superhumans connect
 ## Superhumans evolve humanity 
-
 ## Superhumans design 
-
-## Superhumans are balanced 
-
-## Superhumans feel blissful 
-
-## Superhumans are complete
-
-Within their inner self, superhumans feel complete. They don't need anything per say. 
-They are able to survive the worst of times with next to nothing. They are continuosly progressive 
-in their approach to life still. They know their potential is omnipotent. They use
-all their time to make the highest possible impact. 
-
 ## Superhumans thrive 
-
-No matter what the circumstances, superhumans are able to thrive and create. They 
-understand that their state determines circumstances. They don't let circumstances determine 
-their state. This is how superhumans are able to make a positive difference no matter
-what is happening.
-
-## Superhumans have fresh minds
-
-## Superhumans bring others along 
-
-## Superhumans are explorers
-
+No matter what the circumstances, superhumans are able to thrive and create. They understand that their state determines circumstances. They don't let circumstances determine 
+their state. This is how superhumans are able to make a positive difference no matter what is happening.
 ## Superhumans innovate
-
 ## Superhumans do what they love 
-
-## Superhumans create with a divine purpose 
-
-## Superhumans are prophetic 
-
-Superhumans know that words create worlds, so they are care-full about what they 
-speak into reality. Sooner or later what superhumans talk about becomes reality. 
-Natural outcome of superhuman approach to life is that their verbal predictions 
-become prophetic in nature. This is also because superhumans put their own words 
-into practice.
-
-## Superhumans don't believe in anything 
-
-## Superhumans learn all the time 
-
-## Superhumans work to realise a legacy 
-
-## Superhumans build effortlessly 
-
+## Superhumans create from a divine purpose 
+## Superhumans learn 
 ## Superhumans manage complexity 
-
-## Superhumans prefer doing over talking 
-
-## Superhumans are strategic
-
-## Superhumans are systematic
-
-## Superhumans have a plan and act fast
-
+## Superhumans act fast
 ## Superhumans show up
-
 ## Superhumans consider all possibilities  
-
-## Superhumans are deal makers 
-
-## Superhumans always see a way forward 
-
-## Superhumans know the future only gets better
-
-## Superhumans can always be, do and have more 
-
-## Superhumans are resourceful 
-
-## Superhumans are patient 
-
 ## Superhumans lead 
-
-## Superhumans inspire others 
-
-## Superhumans are inclusive 
-
+Superhumans bring others along. 
+## Superhumans inspire
 ## Superhumans understand
-Understand multiple perspectives, comprehend multiple points of view. 
-Hold multiple points of view at the same time
-
-## Superhumans comprehend other people's minds well
-
-## Superhumans see reality for what it is 
-
-## Superhumans are enlightened 
-
-## Superhumans are self-actualised 
-
-## Superhumans have clear minds 
-
-## Superhumans are their own best friend first
-
-## Superhumans don't need anything yet want everything 
-
-## Superhumans are authentic 
-
-## Superhumans are wise 
-
-## Superhumans realise they are perfect on the level of Being 
-
-## Superhumans are artists of their own life 
-
-## Superhumans always work on themselves  
-
+Understand multiple perspectives, comprehend multiple points of view. Hold multiple points of view at the same time
+## Superhumans self develop
 ## Superhumans live their values 
+## Superhumans play
+## Superhumans perfect 
+## Superhumans see reality for what it is 
+## Superhumans realise they are perfect on the level of Being 
+## Superhumans make deals 
 
+
+# Have
+
+## Superhumans have integrity 
+## Superhumans have fresh minds
+## Superhumans have a plan
 ## Superhumans have great mental architecture
 
-## Superhumans play
-
-## Superhumans perfect 
-
-## Superhumans are beyond super heroes
-
-Super heroes inspired humanity back in 80s and 90s. They are no longer enough to 
-keep us going. Superhumans are real world humans with extraordinary abilities 
-that are useful for us all. Superhumans bring us real world soulutions needed 
-for humanity to make the essential leaps forward.
+### Index of terms 
+(1) Soulution - solution originating from one's soul. 
