@@ -1,6 +1,7 @@
 # Superhuman Manifesto
 
-Superhuman manifesto defines the traits of modern day superhumans.
+Superhuman manifesto defines superhumans characteristics. Manifesto's aim is to inspire. 
+It's a guidance towards an upgraded way to be, do and have.
 
 ## Superhumans have integrity 
 
