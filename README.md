@@ -126,15 +126,18 @@ Continuous process of perfecting creates better circumstances. It is not perfect
 ## Superhumans see reality for what it is 
 Direct experiencing is the highest form of knowing reality. Seeing reality without any mental filters is truth. Superhumans see reality for what it is. Not for what they think it is. This purity of observation enables superhumans to be right more often. 
 
-## Superhumans realise they are perfect on the level of Being 
+## Superhumans realise they are perfect
+As Robert Anthony, PhD in psychology states: 'You are already perfect on the level of being.' Realising the perfection within is only the start. From a place of inner perfection, superhumans intend everything the do and have. This statement, although controversial to many, is freeing those those who accept it. Superhumans accept it. They make no excuses from there on.
+
 ## Superhumans make deals 
+Deal making is an art. Superhumans are artists. As such, they are also deal makers. Capitalist, socialist, anarchist, anarcho-capitalist or whatever system, superhumans make deals within it. The first deal is to deal with oneself. Every other deal from there on is integral to superhuman nature. 
 
 # Have
 
 ## Superhumans have integrity 
 Everything superhumans are, do and have is harmonious. Psychological congruence is the way they are. Integrity is a need, not an achievement. Creation of legacy requires integrity.
 
-## Superhumans have fresh minds
+## Superhumans have Fresh Minds
 Purity and focus of mind are 
 
 ## Superhumans have a plan
