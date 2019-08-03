@@ -79,31 +79,68 @@ Superhumans can create everything from nothing. As nothing, they want everything
 ## Superhumans are beyond super heroes
 Super heroes inspired humanity back in 70s, 80s and 90s. They are no longer enough to keep us going. Superhumans are real world humans with extraordinary self realised abilities. Superpowers that are useful for us all. Superhumans bring us real world soulutions(1). Those soulutions enable humanity to make the essential leaps forward into superhumanity.
 
+## Superhumans are fearless 
+Superhumans are Tier 2 people on Spiral Dynamics model. They have transcended all fears and live a fearless life. This is because they know that fear stems from one thing. Self. As they have realised themselves, they know they have nothing to fear. The future they are entering into is a future they are creating. In a conscious way and with full intent. 
+
 # Do
 
 ## Superhumans explore
+Exploration is natural to superhumans. They are always on a quest to discover new things. To learn new knowledge. To integrate different aspects of themselves. And discover new parts of the planet and galaxy.
+
 ## Superhumans create
-Powerful creators 
+Superhumans are powerful creators who create all the time. They create across many realms of their multi-intelligent capability. It is normal for superhumans to paint, write poetry, design and code and write books. 
+
 ## Superhumans speak truth 
+Superhumans understand that there are different types of truth. They speak their own truth in congruent, integral and holistic way. They are not afraid of speaking their truth. 
+
 ## Superhumans care 
+The kind of care superhumans show is of practical nature. It is care that helps others improve and move forward. It's a solution based care. Not care that only listens without ability to act to improve and correct. Unless listening is the act of care. In which case superhumans listen with care. 
+
 ## Superhumans propagate aspirations
+Aspiration is stronger and more powerful than desperation. Even a desperate person is aspiring to get out of desperation. Superhumans know this and embrace aspirations as normal way of living life. 'What now?' is a standard question superhumans ask themselves.  
+
 ## Superhumans connect
+The first step is to connect with oneself. Each superhuman connects with themselves first. On the deepest possible level. From there on superhumans connect with others to grow and expand further. Starting from 'I', they move onto 'We' and then 'It' and 'Its' quadrants. 
+
 ## Superhumans evolve humanity 
+Through self discovery, development and innerstanding, superhumans help evolve humanity. By setting new standards of best practice behaviours. By setting best in class ways of being. In the most literal sense. They leave examples of how to Be, Do and Have in a superhuman way. As superhuman Einstein said: 'The only way to teach is through an example.' 
+
 ## Superhumans design 
+Design is the way things work. It is also applied philosophy. By having a comprehensive philosophy superhumans design how things can work. They set new standards. Create true innovations based on sound foundations of self knowledge. Superhumans design in sustainable and inclusive ways. 
+
 ## Superhumans thrive 
 No matter what the circumstances, superhumans are able to thrive and create. They understand that their state determines circumstances. They don't let circumstances determine 
 their state. This is how superhumans are able to make a positive difference no matter what is happening.
+
 ## Superhumans innovate
+Superhuman innovation bases itself on soul and essence of what it means to be human. It is radical in the truest sense. Revolutionary as it comes from a super high realm of thinking. Thinking beyond thinking. Consciousness itself. Superhuman innovations are not based on ego. 
+
 ## Superhumans do what they love 
+Wisdom, love and joy and integral part of superhuman way of being and living life. As such, superhumans life a joyful life and create from love. To be able to do so, they first live a life they love. It's the wisest way to be. 
+
 ## Superhumans create from a divine purpose 
+Superhumans have direct connection to divine. They can hear their inner calling. They are able to accept this as the way to create in the purest sense. Purpose equals energy. Divine purpose equals super energy. 
+
 ## Superhumans learn 
+Learning is an ongoing part of superhuman lifestyle. Learning about learning is too. Superhumans are thirsty for new knowledge and applied wisdom all the time. There is nothing hard about learning. It's the way to be and to improve. Always starting from self and then impacting on everything and everyone else.
+
 ## Superhumans manage complexity 
+Complexity is part of the nature of the universe we live in. As such, it needs managing as opposed to simplifying. Superhumans are great managers of complexity through models, maps and frameworks. One of those models is atomic design and holonomic approach to systems. 
+
 ## Superhumans act fast
+As soon as a realisation gets obtained, superhumans start putting it into practice. The notion of 'processing' is fast with superhumans. They are able to utilise all their sensory faculties to double and triple check things. As such, superhumans cut down processing time. Then act fast on new realisations. 
+
 ## Superhumans show up
+Only death can stop superhumans from living their purpose. Since they are always doing what they love, they show up to things they promise to show up to. The only thing that can stop superhumans is death or comma. Everything else gets overcome one way or another. Even if showing up is via a virtual channel. 
+
 ## Superhumans consider many possibilities  
+Everything is possible. Not everything is probable. Superhumans draw this distinction in their minds in a clear way. They consider many possibilities to explore the most optimal solutions for future. This way they are avoiding taking dead-end paths which need backing out of in future. 
+
 ## Superhumans lead 
-Superhumans bring others along. 
+Superhumans bring others along. They do this by showing by example and leading themselves first. They lead with integrity and congruence. Never promising what they can't deliver and always delivering what they promise. One way or another. Leadership is about being, doing and having in a integral way. 
+
 ## Superhumans inspire
+Superhuman spirit is always present. As such, superhumans are always in spirit. They are inspired by their very nature. This is why superhumans inspire through everything they are, do and have. Inspiration from superhumans creates ongoing positive vibes around the world. It drives aspirations through inspiration. 
 
 ## Superhumans live clean 
 Superhumans eat clean without consumption of alcohol, drugs, smoking and processed foods. Clarity of body goes hand in hand with keeping a clear mind. Superhumans live a clean life all round. They consume lots of water and breathe the right way.
@@ -135,13 +172,14 @@ Deal making is an art. Superhumans are artists. As such, they are also deal make
 # Have
 
 ## Superhumans have integrity 
-Everything superhumans are, do and have is harmonious. Psychological congruence is the way they are. Integrity is a need, not an achievement. Creation of legacy requires integrity.
+Everything superhumans are, do and have is harmonious. Psychological congruence is the way they are. Integrity is a need, not an achievement. Creation of legacy requires integrity. Integrity is the base upon everything else gets developed in a reliable way. Integrity is what all super achievers of the times past had. 
 
 ## Superhumans have Fresh Minds
-Purity and focus of mind are 
+Purity and focus of mind are essential to create and maintain a superhuman life. And to leave a superhuman impact after life. Fresh Mind is available to everyone who is willing to make a giant leap into superhumanity. It is a tried, tested and reliable process that gets humans to become superhumans. In an enjoyable and experiential way.  
 
-## Superhumans have a plan
-## Superhumans have great mental architecture
+## Superhumans have a vision
+Vision guides superhumans towards creating a better life for themselves and everyone else. The vision is holistic and very long term in nature. It is normal for superhumans to think of 10, 20 and 30+ years ahead. And to handle those time scales with ease and flow. 
+
 
 ### Index of terms 
 (1) Soulution - solution originating from one's soul. 
