@@ -116,7 +116,7 @@ their state. This is how superhumans are able to make a positive difference no m
 Superhuman innovation bases itself on soul and essence of what it means to be human. It is radical in the truest sense. Revolutionary as it comes from a super high realm of thinking. Thinking beyond thinking. Consciousness itself. Superhuman innovations are not based on ego. 
 
 ## Superhumans do what they love 
-Wisdom, love and joy and integral part of superhuman way of being and living life. As such, superhumans life a joyful life and create from love. To be able to do so, they first live a life they love. It's the wisest way to be. 
+Wisdom, love and joy are integral part of superhuman way of being and living life. As such, superhumans life a joyful life and create from love. To be able to do so, they first live a life they love. It's the wisest way to be. 
 
 ## Superhumans create from a divine purpose 
 Superhumans have direct connection to divine. They can hear their inner calling. They are able to accept this as the way to create in the purest sense. Purpose equals energy. Divine purpose equals super energy. 
