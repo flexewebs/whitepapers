@@ -157,14 +157,14 @@ Knowledge is power. Knowledge of self is a superpower. Personal values are a gui
 ## Superhumans play
 Superhumans have healthy inner child within them. They play all the time. It's the most optimal way to complete any game. Including the games of life and legacy building. Superhumans play even with the most serious of circumstances. 
 
+## Superhumans realise and accept they Are perfect
+As Robert Anthony, PhD in psychology says: 'You are already perfect on the level of being.' Realising the perfection within is only the start. From a place of inner perfection, superhumans intend everything they do and have. This statement, although controversial to many, is freeing those those who accept it. Superhumans accept it. They make no excuses from there on.
+
 ## Superhumans perfect 
 Continuous process of perfecting creates better circumstances. It is not perfectionism. It is perfecting. There is always a better way to do anything. Superhumans perfect better ways all the time. It is continuous innovation at the heart of approach to life. 
 
 ## Superhumans see reality for what it is 
 Direct experiencing is the highest form of knowing reality. Seeing reality without any mental filters is truth. Superhumans see reality for what it is. Not for what they think it is. This purity of observation enables superhumans to be right more often. 
-
-## Superhumans realise they are perfect
-As Robert Anthony, PhD in psychology states: 'You are already perfect on the level of being.' Realising the perfection within is only the start. From a place of inner perfection, superhumans intend everything the do and have. This statement, although controversial to many, is freeing those those who accept it. Superhumans accept it. They make no excuses from there on.
 
 ## Superhumans make deals 
 Deal making is an art. Superhumans are artists. As such, they are also deal makers. Capitalist, socialist, anarchist, anarcho-capitalist or whatever system, superhumans make deals within it. The first deal is to deal with oneself. Every other deal from there on is integral to superhuman nature. 
