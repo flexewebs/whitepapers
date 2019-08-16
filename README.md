@@ -1,38 +1,38 @@
 # Superhuman Manifesto
 
-Superhuman manifesto defines superhumans characteristics. Manifesto's aim is to inspire. It's a guide for an upgraded way to be, do and have.
+Superhuman manifesto defines superhuman characteristics. Manifesto aims to inspire. It's a guide for an upgraded way to be, do and have. It's not intended to be a doctrinal prescription in any way, shape or form.
 
 # Be
 
 ## Superhumans are superabundant
-At any stage in their lives, superhumans know they live in superabundace. They are aware of direct access to resources. Their superabundance starts in the mind. It reflects in doing and having. In that order. Superhuman abundant physical life is a direct results of mental superabundance.
+Superhumans know they live in superabundace. They are aware of direct access to resources. Their superabundance gets realised in their mind. It reflects in doing and having. In that order. Superhuman abundant physical life is a direct result of mental superabundance.
 
 ## Superhumans are polymaths
-Interest in many subjects is the norm for superhumans. They synthesise across varied realms. They aim to realise broader truth. They embrace tendency to like many themes. They utilise plethora of different skills. They always work on expanding their capabilities across the board.
+Interest in many subjects is the norm for superhumans. They synthesise across variety of realms. They aim to realise broader truth. They embrace their tendency to like many themes. They utilise plethora of different skills. They work on expanding their capabilities across the board.
 
 ## Superhumans are neutral
-Inner balance is the most natural state of being. Superhumans realise this and keep their inner balance at all times. From this state they can do and have balanced outcomes in life. Outcomes which have long term relevance. 
+Inner balance is the natural state of being. Superhumans realise this and maintain their inner balance. From this state they can do and have balanced outcomes in life. These outcomes have long term relevance. 
 
 ## Superhumans are blissful 
-Blissfulness is a byproduct of enlightenment. Realising the perfection of creation produces blissfulness in all situations. Superhumans are blissful because of the awareness level they are at. 
+Blissfulness is a byproduct of enlightenment. Realising the perfection of creation produces blissfulness in all situations. Superhumans are blissful because of the awareness level they are at. And the clarity of mind they are in.
 
 ## Superhumans are complete
-Superhumans feel complete inside. They don't need anything. They are able to survive no matter what. They still upgrade their approach to life. They know their potential. They use time to realise that potential. 
+Superhumans feel complete and whole inside. They don't need anything. They are able to survive no matter what. They still continue to upgrade their approach to life. They know their potential. They use time to realise that potential. 
 
 ## Superhumans are prophetic 
-Superhumans know that words create worlds. They are care-full about what they speak into reality. What superhumans talk about, becomes reality.  Superhuman approach to life means that their verbal predictions become prophetic. This is because superhumans put their own words into practice.
+Superhumans know that words create worlds. They are care-full about what they speak into reality. What superhumans talk about, becomes reality. Superhuman approach to life means that their verbal predictions become prophetic. This is because superhumans put their own words into practice.
 
 ## Superhumans know
-Superhumans gain knowledge all the time. Knowledge is power. Continuous gaining of knowledge is a continuous gaining of power. Superhumans first know themselves. They then integrate all kinds of other knowledge throughout their lives. They also share their knowledge with the rest of humanity. 
+Superhumans gain knowledge all the time. Knowledge is power. Continuous gaining of knowledge is continuous gaining of power. Superhumans first know themselves. They then integrate all kinds of other knowledge throughout their lives. They share their knowledge with humanity. 
 
 ## Superhumans prioritise doing over talking 
-Words create worlds. It requires doing for verbal intentions to reflect themselves in reality. This is why superhumans prioritise doing over talking. Reflections in reality are more valuable than conceptions in language. 
+Words create worlds. Verbal intentions reflect into reality through doing. This is why superhumans prioritise doing over talking. Reflections in reality are more valuable than conceptions in language. 
 
 ## Superhumans are strategic
-Long term approach is the key to being superhuman. Ten, twenty, thirty or hundred year visions and plans are normal. You can only connect the dots backwards. Start with the end vision. Then connect the dots backwards to present moment. Then act on the outlined strategy. 
+Long term approach is the key to being superhuman. Ten, twenty, thirty or hundred year visions are normal. They connect dots backwards. Starting with the end vision. Then connecting the dots backwards to present moment. Then act on the outlined strategy and approach. 
 
 ## Superhumans are systematic
-A complete approach to life and understanding of how things work is a requisite. Superhumans understand the systemic nature of everything. They are systems thinkers and comprehend complexity very well. They are able to design and change systems for the better. 
+Complete approach to life and understanding of how things work is a requisite. Superhumans understand the systemic nature of everything. They are systems thinkers and comprehend complexity. They are able to design and upgrade systems. 
 
 ## Superhumans are peaceful 
 Inner peace produces peace on Earth. Superhumans understand that peace is the most natural way to be. Superhumans are always peaceful. Even if that peacefulness requires them to self-protect. Superhumans will never start a fight first. This is in line with teachings and ethos of all martial arts. 
