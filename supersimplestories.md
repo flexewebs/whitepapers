@@ -22,7 +22,7 @@ Gain competitive advantage. Implement things correctly. Create perfect teamwork.
 It's super fast. It's super fun. Everyone gets it. It limits overwhelm. Creates mental health. You'll increase impact. You'll reduce waste. Managers'll love you. You'll be cool. It feels better. It's highly scannable. Amazing, clean practice. Easy to use. Easy to remember. Easy to follow. Easy to understand. Ultra fast onboarding. It costs nothing. It saves time. It really works. No training needed. You've all skills. Avoid any misunderstandings. Achieve total clarity. Enjoy creating again. Communicate projects quickly. Cut all slack. Keep the essence. 
 
 ## What to create? 
-Write agile stories. Write software tests. Create pseudo code. Create software requirements. Capture meeting agendas. Organise big texts. Stub out functions. Capture essences fast. Simplify agreements meaningfully. Distill biggest value. Plan a book.
+Write agile stories. Write software tests. Create pseudo code. Create software requirements. Capture meeting agendas. Organise big texts. Stub out functions. Capture essences fast. Simplify agreements meaningfully. Distill biggest value. Plan a book. Short commit messages. Reports to management. In documentation (sub)titles.
 
 ## Show an example 
 Smartphone app specifications. Events booking system. Minimum viable product.
