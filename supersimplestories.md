@@ -49,13 +49,13 @@ Language is simple. Humans complicate it. How to improve? Stick to essence. Radi
 ## Suggested meta structures
 
 ### Use action phrases 
-[Verb] [attribute] [object]. Here's an example: Create beautiful art.
+[Verb] [attribute] [object]. Create beautiful art.
 
 ### Use noun phrases
-[Subject] [verb] [object]. Here's an example: John mints NFT.
+[Subject] [verb] [object]. John mints NFT.
 
 ### Subject description phrases
-[Object] [verb] [attribute]. Here's an example: Trees are green.
+[Object] [verb] [attribute]. Trees are green.
 
 ### Verb description phrases
-[Subject] [verb] [adverb]. Here's an example: Cars drive fast.
+[Subject] [verb] [adverb]. Cars drive fast.
