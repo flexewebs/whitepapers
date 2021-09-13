@@ -44,9 +44,9 @@ Smartphone app specifications. Events booking system. Minimum viable product.
 
 ## Writing power tips
 
-Language is simple. Humans complicate it. How to improve? Stick to essence. Radically reduce words. Break it down. Create sentence sequences. Sentences are instructions. Sentences are atomic. 
+Language is simple. Humans complicate it. How to improve? Stick to essence. Radically reduce words. Break it down. Create sentence sequences. Sentences are instructions. Sentences are atomic. Point per sentence. 
 
-## Suggested meta structures. 
+## Suggested meta structures
 
 Use action phrases. 
 [Verb] [attribute] [object]. 
@@ -58,3 +58,11 @@ Use noun phrases.
 Here's an example.  
 John mints NFT.
 
+Subject description phrases.
+[Object] [verb] [attribute]. 
+Here's an example.
+Trees are green.
+
+Verb description phrases.
+[Subject] [verb] [adverb]. 
+Cars drive fast.
