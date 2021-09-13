@@ -1,6 +1,6 @@
 # Super Simple Stories
 
-## What is it? 
+## What it is
 Contemporary lean methodology. New creation framework. Create amazing things. Using short statements. Keep things clear. Describe projects minimally. Capture truth quickly. Focus on essence. Eliminate all waste. Less word's more. 
 
 ## How it works
@@ -12,16 +12,16 @@ Software engineers. Various types of designers. Software architects. Management 
 ## Why it works
 World is complex. Humans love simplicity. Focus on love. Simplify all complexity. Creates simplexity everywhere. 
 
-## When to use? 
+## When to use 
 Start right now. Use in projects. Use every time. Rinse and repeat. 
 
-## What happens afterwards?
+## What happens afterwards
 Gain competitive advantage. Implement things correctly. Create perfect teamwork. Reduce unnecessary communication. Increase team understanding. Achieve great results. Require less people. Create products faster. Increase overall quality. Simplify your life.
 
 ## Why use this
 It's super fast. It's super fun. Everyone gets it. It limits overwhelm. Creates mental health. You'll increase impact. You'll reduce waste. Managers'll love you. You'll be cool. It feels better. It's highly scannable. Amazing, clean practice. Easy to use. Easy to remember. Easy to follow. Easy to understand. Ultra fast onboarding. It costs nothing. It saves time. It really works. No training needed. You've all skills. Avoid any misunderstandings. Achieve total clarity. Enjoy creating again. Communicate projects quickly. Cut all slack. Keep the essence. 
 
-## What to create? 
+## What to create 
 Write agile stories. Write software tests. Create pseudo code. Create software requirements. Capture meeting agendas. Organise big texts. Stub out functions. Capture essences fast. Simplify agreements meaningfully. Distill biggest value. Plan a book. Short commit messages. Reports to management. In documentation (sub)titles.
 
 ## Show an example 
