@@ -1,4 +1,4 @@
-# Super Simple Stories
+# Super Simple Stories ™
 
 ## What it is
 Contemporary lean methodology. New creation framework. Create amazing things. Using short statements. Keep things clear. Describe projects minimally. Capture truth quickly. Focus on essence. Eliminate all waste. Less word's more. 
