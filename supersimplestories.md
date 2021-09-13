@@ -48,10 +48,10 @@ Language is simple. Humans complicate it. How to improve? Stick to essence. Radi
 
 ## Suggested meta structures
 
-### Use action phrases 
+### Action lead phrases 
 [Verb] [attribute] [object]. Create beautiful art.
 
-### Use noun phrases
+### Noun lead phrases
 [Subject] [verb] [object]. John mints NFT.
 
 ### Subject description phrases
