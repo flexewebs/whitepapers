@@ -7,7 +7,7 @@ Contemporary lean methodology. New creation framework. Create amazing things. Us
 Utilise three words. Create software specifications. Use right now. Radically simplify complexity. It's like herokus.
 
 ## Who it's for 
-Software engineers. Various types of designers. Software architects. Management consultants. Lean & agile practitioners. Story & song writers. People generating ideas. Marketers and sales people. Lawyers and advisors. People handling complexity. 
+Software engineers. Product owners. User experience designers. Software architects. Management & business consultants. Lean & agile practitioners. Story & song writers. People generating ideas. Marketers & sales people. Lawyers & advisors. People handling complexity. All caring professionals.
 
 ## Why it works
 World is complex. Humans love simplicity. Focus on love. Simplify all complexity. Creates simplexity everywhere. 
