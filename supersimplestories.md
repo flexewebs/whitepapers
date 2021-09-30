@@ -10,7 +10,7 @@ Utilise three words. Create software specifications. Use right now. Radically si
 All engineer types. Product owners & managers. User experience designers. Software architects. Management & business consultants. Lean & agile practitioners. Story & song writers. People generating ideas. Marketers & sales people. Lawyers & advisors. People handling complexity. All caring professionals.
 
 ## Why it works
-World is complex. Humans love simplicity. Focus on love. Simplify all complexity. Creates simplexity everywhere. 
+World is complex. Humans love simplicity. Focus on love. Simplify all complexity. Create [simplexity](https://en.wikipedia.org/wiki/Simplexity "Simplifying complex. Check what it means.") everywhere. 
 
 ## When to use 
 Start right now. Use in projects. Use every time. Rinse and repeat. 
