@@ -1,8 +1,10 @@
-# Integral governance
+# Integral company guidelines
 
 ## Integral values, principles and approaches
 
 These are the values that govern Integral as a company. 
+
+<img src="https://github.com/flexewebs/Integral-White-Papers/blob/master/i/characteristics.png" alt="Integral characteristics" />
 
 ### 1. Integrity
 Integrity simply means delivering on your word. Your word is your bond. What you say is what you do. If you promise something, you have to deliver on it. There are no excuses. If you cannot deliver something, you don't promise it in the first place. If there are complications with what you promised, you make those complications clear as soon as possible. If you need more time or effort to complete something, keep everyone updated about what's going on as early as possible. 
@@ -13,7 +15,7 @@ Everyone is a leader at Integral. You are leading yourself first. You are also l
 ### 3. Results 
 Results are practical outputs of excellent creativity. Results can be shown, shared, exploited and integrated into other aspects of the company or our customers's companies. Examples of results are: functional software, artworks, well-tested design blueprints, amazing pitch decks, great illustrations, appealing content, etc. Results is what you will be evaluated on and valued for. 
 
-### 4. Communication
+### 4. Truth
 We value truth over everything else in communication. Tell the truth at all times, no matter how harsh it might sound. Have justifications for what you are saying. Bring evidence along with you for why you are saying it. Be forthcoming with the truth. Be clear with the truth you're telling. Never lie! 
 
 ### 5. Inquisitiveness 
@@ -34,15 +36,15 @@ We create the highest quality creations we possibly can in everything we do. Qua
 ### 10. Joy
 We create with (en)joy(ment) in everything we do. We are not looking to create things we don't want to create. Within this, we recognise that even those things we love to do have an element of less enjoyable part to them. We make those elements as enjoyable for ourselves as possible either through automation or applying mixture of the other values, principles and approaches. 
 
-## Integral design mantra and approach
+## Integral design approach
 
 ### 0. Talk - is cheap
 Avoid simply talking to others. One of the best ways to waste a lot of time is to talk endlessly about things. Instead of talking, we ought to focus on at least the next step (writing) things down. In a meeting with N people, each 5 minutes of talking are using up N*5 minutes of overall team's time. Meanwhile, no re-referencable artefact gets created, making it hard for other members of the team to remember what got discussed in the meeting.
 
-### 1. Write - words create worlds 
+### 1. Words - create worlds 
 Before we can create anything we need to write it into existence. The simplest way to write ideas down is to use [Super Simple Stories](https://github.com/flexewebs/Integral-White-Papers/blob/master/supersimplestories.md). More we focus on essence and core of the matters, the better. Words are commands which enable manifestation of the metaphysical into physical truth. 
 
-### 2. Illustrate - picture says a thousand words
+### 2. Picture - says a thousand words
 As soon as we write down what we want to create, we can start picturing, drawing or illustrating it. This is because human mind and brain is very well geared to recognise symbols and images. These symbols and images can tell different stories in different contexts. Symbolic and visual stories are much more impactful on people than written stories. 
 
 ### 3. Prototype - says a thousand pictures
@@ -57,5 +59,5 @@ Once the coded or prototyped creation we make gets seen by other people, it star
 ### 6. Experience - is the product
 The point of releasing our creation is to help create experiences in other people who are willing, able and want to use our creation. Experience is the product in the eyes, minds and bodies of our customers and users. Customers cannot experience something that has not been released yet. 
 
-### 7. Transform(ation) - is the goal
+### 7. Transformation - is the goal
 Even though experience is the product, the ultimate goal of our creation is to impact on humanity (Redesign Humanity) and help create a better world out there for all people we can possibly effect with our creations. Design and creations are the ultimate drivers of worldwide transformation that lasts for a long time. 
