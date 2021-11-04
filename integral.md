@@ -38,6 +38,8 @@ We create with (en)joy(ment) in everything we do. We are not looking to create t
 
 ## Integral design approach
 
+<img src="https://github.com/flexewebs/Integral-White-Papers/blob/master/i/Design%20approach.png" alt="Design approach" />
+
 ### 0. Talk - is cheap
 Avoid simply talking to others. One of the best ways to waste a lot of time is to talk endlessly about things. Instead of talking, we ought to focus on at least the next step (writing) things down. In a meeting with N people, each 5 minutes of talking are using up N*5 minutes of overall team's time. Meanwhile, no re-referencable artefact gets created, making it hard for other members of the team to remember what got discussed in the meeting.
 
