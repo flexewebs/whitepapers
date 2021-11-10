@@ -4,7 +4,7 @@
 
 These are the values that govern Integral as a company. 
 
-<img src="https://github.com/flexewebs/Integral-White-Papers/blob/master/i/brandcharacteristics.png" alt="Integral characteristics" />
+<img src="https://github.com/flexewebs/Integral-White-Papers/blob/master/i/Characteristics.png" alt="Integral characteristics" />
 
 ### 1. Integrity
 Integrity simply means delivering on your word. Your word is your bond. What you say is what you do. If you promise something, you have to deliver on it. There are no excuses. If you cannot deliver something, you don't promise it in the first place. If there are complications with what you promised, you make those complications clear as soon as possible. If you need more time or effort to complete something, keep everyone updated about what's going on as early as possible. 
