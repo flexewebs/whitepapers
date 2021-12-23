@@ -92,4 +92,4 @@ accelerate, accomplish, achieve, acquire, adapt, address, advance, advise, advoc
 business, brainstorm, better, eliminate, fail, good, habit, improve, if, KPIs, leader, like, management, move, map, mission, marketing, new, need, opinion, process, plan, philosophy, ROI, report, really, strategy, success, spirit, serious, sales, task, well, when 
 
 ### Avoid 
-assume, AI, a lot, best, believe, change, cheap, command, control, don’t, death, die, fiat, fear, feedback, fake, force, enforce, guess, holistic, hope, hate, hack, IT, I, Instance, interesting, just, kill, lie, meet, monitor, must, myself, no, nice, organisation, obviously, right, slow, track, try, work, wait, user
+assume, AI, a lot, best, believe, belief, change, cheap, command, control, don’t, death, die, fiat, fear, feedback, fake, force, enforce, guess, holistic, hope, hate, hack, IT, I, Instance, interesting, just, kill, lie, meet, monitor, must, myself, no, nice, organisation, obviously, right, slow, track, try, work, wait, user
