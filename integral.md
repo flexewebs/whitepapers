@@ -86,66 +86,12 @@ Share your creation in as soft a form as possible when you have done publishing 
 ## Integral brand vocabulary 
 
 ### Use 
-accelerate, accomplish, achieve, acquire, adapt, address, advance, advise, advocate, agile, aim, align, analyse, api, apply, appoint, approach, architect, arrange, ask, aspire, assemble, assess, assist, author
-be, become, belong, benefit, beyond, boost, brief, budget, build
-calculate, can, capture, care, cashflow, catalog, champion, chart, chat, choose, clarify, classify, close, coach, code, collaborate, collect, communicate, community, company, compare, compel, compile, complete, conclude, conduct, confident, connect, consistent, consolidate, construct, consult, contemporary, continue, contract, convert, cooperate, coordinate, correct, craft, create, critique, contemporary, culture 
-data, deal, decentralise, decide, decrease, define, delegate, delight, deliver, demonstrate, deploy, design, detail, determine, develop, devise, direct, discover, discuss, display, distribute, diversify, do, document, draft, drive
-earn, easy, edit, educate, effect, efficient, eliminate, emphasize, empower, encourage, energize, engineer, enhance, enjoy, ensure, establish, estimate, evaluate, evolution, evolve, examine, exceed, excellent, execute, exercise, exhibit, expand, experience, experiment, explore
-facilitate, fact, fantastic, fast, feel, finance, find, first, flow, focus, form, formalise, formulate, foundation, free, fresh, friend, full, fun, fund
-gather, generate, goal, govern, governance, great, growth, guide, guideline
-have, head, hire, honor, human, hypothesis, hypothesize
-Idea, ideal, identify, illustrate, imagine, immediate, implement, import, improve, improvise, inclusive, increase, incubate, influence, inform, initiate, innovate, insight, inspect, inspire, install, institute, instruct, integrate, intensify, interpret, interview, introduce, invent, inventory, invest, investigate
-justify 
-know
-laugh, launch, lead, learn, lecture, license, life, listen, live, locate, love
-maintain, manage, manufacture, map, market, may, mean(ing), measure, mediate, mentor, model, modify, money, monitor, motivate, mind, mindful
-navigate, negotiate, now, objective, observe, obtain, offer
-open, operate, optimal, orchestrate, organise, orient, originate, outcome, outsource, overcome, oversee
-participate, partner, partnership, people, perceive, perfect, perform, personal, persuade, pilot, pinpoint, pioneer, pitch, plan, planet, please, position, power, powerful, practice, predict, prepare, present, preside, principle, problem, process, procure, products, profit, program, progress, project, promote, propose, prospect, provide, publicise, publish, purchase, pure
-qualify, quality, question
-rate, real, realign, reason, rebuild, recapture, receive, recognise, recommend, reconcile, record, recruit, redesign, reduce, reengineer, regain, regulate, reinforce, rejuvenate, reliable, render, renegotiate, reorganise, report, reposition, represent, request, research, resolve, respond, restore, restructure, result, retrieve, review, revise, revitalise
-satisfy, save, scale, schedule, seamless, secure, see, seed, select, sell, sense, serve, share, simple, simplify, software, solidify, solution, solve, source, soul, soulful, speak, specify, standardise, startup, steady, stimulate, story, streamline, structure, succeed, suggest, super, support, sure, sustain, systems, sequence
-teamwork, thank, think, thought, time, transform, true, trust, truth
-unbiased, understand, upgrade
-want, we, welcome, well, wellbeing, wellness
-you
+accelerate, accomplish, achieve, acquire, adapt, address, advance, advise, advocate, agile, aim, align, analyse, api, apply, appoint, approach, architect, arrange, ask, aspire, assemble, assess, assist, author, be, become, belong, benefit, beyond, boost, brief, budget, build, calculate, can, capture, care, cashflow, catalog, champion, chart, chat, choose, clarify, classify, close, coach, code, collaborate, collect, communicate, community, company, compare, compel, compile, complete, conclude, conduct, confident, connect, consistent, consolidate, construct, consult, contemporary, continue, contract, convert, cooperate, coordinate, correct, craft, create, critique, contemporary, culture, data, deal, decentralise, decide, decrease, define, delegate, delight, deliver, demonstrate, deploy, design, detail, determine, develop, devise, direct, discover, discuss, display, distribute, diversify, do, document, draft, drive, earn, easy, edit, educate, effect, efficient, eliminate, emphasize, empower, encourage, energize, engineer, enhance, enjoy, ensure, establish, estimate, evaluate, evolution, evolve, examine, exceed, excellent, execute, exercise, exhibit, expand, experience, experiment, explore, facilitate, fact, fantastic, fast, feel, finance, find, first, flow, focus, form, formalise, formulate, foundation, free, fresh, friend, full, fun, fund, gather, generate, goal, govern, governance, great, growth, guide, guideline, have, head, hire, honor, human, hypothesis, hypothesize, idea, ideal, identify, illustrate, imagine, immediate, implement, import, improve, improvise, inclusive, increase, incubate, influence, inform, initiate, innovate, insight, inspect, inspire, install, institute, instruct, integrate, intensify, interpret, interview, introduce, invent, inventory, invest, investigate, justify, know, laugh, launch, lead, learn, lecture, license, life, listen, live, locate, love, maintain, manage, manufacture, map, market, may, mean(ing), measure, mediate, mentor, model, modify, money, monitor, motivate, mind, mindful, navigate, negotiate, now, objective, observe, obtain, offer, open, operate, optimal, orchestrate, organise, orient, originate, outcome, outsource, overcome, oversee, object, participate, partner, partnership, people, perceive, perfect, perform, personal, persuade, pilot, pinpoint, pioneer, pitch, plan, planet, please, position, power, powerful, practice, predict, prepare, present, preside, principle, problem, process, procure, products, profit, program, progress, project, promote, propose, prospect, provide, publicise, publish, purchase, pure
+qualify, quality, question, rate, real, realign, reason, rebuild, recapture, receive, recognise, recommend, reconcile, record, recruit, redesign, reduce, reengineer, regain, regulate, reinforce, rejuvenate, reliable, render, renegotiate, reorganise, report, reposition, represent, request, research, resolve, respond, restore, restructure, result, retrieve, review, revise, revitalise, satisfy, save, scale, schedule, seamless, secure, see, seed, select, sell, sense, serve, share, simple, simplify, software, solidify, solution, solve, source, soul, soulful, speak, specify, standardise, startup, steady, stimulate, story, streamline, structure, succeed, suggest, super, support, sure, sustain, systems, sequence, teamwork, thank, think, thought, time, transform, true, trust, truth, thing, unbiased, understand, upgrade, value, view, want, we, welcome, well, wellbeing, wellness, yes, you
 
 ### Warning
-Business, brainstorm, better, breakthrough 
-Eliminate 
-Fail, family  
-Good
-Habit
-Improve, if 
-KPIs
-Leader, like
-Management, move, map, mission, marketing 
-New, need 
-Opinion
-Process, plan, philosophy
-ROI, report, really 
-Strategy, success, spirit, serious, sales
-Thought, task, thing
-Value 
-Well, when 
+business, brainstorm, better, breakthrough, eliminate, fail, family, good, habit, improve, if, KPIs, leader, like, management, move, map, mission, marketing, new, need, opinion, process, plan, philosophy, ROI, report, really, strategy, success, spirit, serious, sales, thought, task, well, when 
 
 ### Avoid 
-AI, a lot
-Best, believe 
-Change, command, control 
-Don’t, death, die 
-Fiat, fear, feedback, fake 
-Enforce
-Guess
-Holistic, hope, hate, hack
-IT, I, Instance, interesting 
-Just
-Kill 
-Lie
-Meet, monitor, must 
-No, nice
-Organisation 
-Right?
-Slow
-Track, truth, try 
-Work, wait 
+AI, a lot, best, believe, change, cheap, command, control, don’t, death, die, fiat, fear, feedback, fake, force, enforce, guess, holistic, hope, hate, hack, IT, I, Instance, interesting, just, kill, lie, meet, monitor, must, no, nice, organisation, right, slow, track, try, work, wait 
+
